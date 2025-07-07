@@ -1,4 +1,4 @@
-aloa les gens bon pour faire simple et bien croyez moi POETRY et votre amis ;)
+aloa les gens bon pour faire simple et bien croyez moi POETRY et plus de soucis
 <!---
 bb-lades/bb-lades is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
